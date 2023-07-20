@@ -1,1 +1,1 @@
-Hi, I am Sayjal Shrestha
+Hi, I am Sayjal Shrestha. I am currently CS undergraduate.
